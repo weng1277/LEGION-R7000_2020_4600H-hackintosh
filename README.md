@@ -1,0 +1,1 @@
+# LEGION-R7000_2020_4600H-hackintosh
